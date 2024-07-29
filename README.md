@@ -1,1 +1,1 @@
-![MasterHead](https://www.google.com/imgres?imgurl=https%3A%2F%2Ft3.ftcdn.net%2Fjpg%2F02%2F20%2F48%2F72%2F360_F_220487271_ywVxN2Jff7qIsIl4CDbPyEux8xI0tWnh.jpg&tbnid=inAXN1TKABzIkM&vet=12ahUKEwiEpMbh-syHAxU79qACHbKyOS0QMygregUIARDJAQ..i&imgrefurl=https%3A%2F%2Fstock.adobe.com%2Fimages%2Fportfolio-paper-banner-with-colorful-brush-strokes%2F220487271&docid=GaffMHn_FKeqzM&w=1094&h=360&q=portfolio%20images%20png&ved=2ahUKEwiEpMbh-syHAxU79qACHbKyOS0QMygregUIARDJAQ)
+![MasterHead](https://cdn.freebiesupply.com/logos/large/2x/portfolio-logo-svg-vector.svg)
